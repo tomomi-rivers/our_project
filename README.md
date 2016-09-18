@@ -1,1 +1,1 @@
-# Shizuka project
+# Nobita & Shizuka project
